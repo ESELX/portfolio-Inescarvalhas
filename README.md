@@ -8,3 +8,4 @@ Razão pelo escolha:
 29 Abril - Escolha da informação preferida a por no Portfólio
 14 Maio - Organização no html (Decidir onde a informação deve ficar)
 15 Maio - organização de categorias
+22 Maio - Acabamento da Introdução 
