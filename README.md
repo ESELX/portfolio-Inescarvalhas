@@ -9,3 +9,4 @@ Razão pelo escolha:
 14 Maio - Organização no html (Decidir onde a informação deve ficar)
 15 Maio - organização de categorias
 22 Maio - Acabamento da Introdução, sobre mim e organização de tópicos e fotos.
+29 Maio - Informação de trabalhos
