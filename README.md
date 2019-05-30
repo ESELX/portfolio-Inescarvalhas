@@ -10,3 +10,4 @@ Razão pelo escolha:
 15 Maio - organização de categorias
 22 Maio - Acabamento da Introdução, sobre mim e organização de tópicos e fotos.
 29 Maio - Informação de trabalhos
+30 Maio - Finalização da informação (falta desenho)
