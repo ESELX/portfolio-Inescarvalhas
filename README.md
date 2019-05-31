@@ -11,3 +11,4 @@ Razão pelo escolha:
 22 Maio - Acabamento da Introdução, sobre mim e organização de tópicos e fotos.
 29 Maio - Informação de trabalhos
 30 Maio - Finalização da informação (falta desenho)
+31 Maio - Finalizado (por agora)
